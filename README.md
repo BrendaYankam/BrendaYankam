@@ -3,5 +3,5 @@
  I’m looking to collaborate on different projects especially DSWB project.
  How to reach me on github -- @BrendaYankam and by email-- brenda.yankam@gmail.com
  Pronouns: she/her 😄
-⚡Fun fact: singing, volley ball, reading, minigol.
+⚡Fun fact: singing, volley ball, reading, and 🏌️‍♀️⛳ minigolf.
 
